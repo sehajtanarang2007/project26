@@ -1,0 +1,1 @@
+ take a pan add 2 cups os water add masala then boil it after boiling add maggi and let it cook for around 2-3 minutes
